@@ -1,0 +1,1 @@
+# CS-GO-ShortThrow-in-CS-1.6
